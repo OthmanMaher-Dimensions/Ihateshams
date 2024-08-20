@@ -1,1 +1,1 @@
-- I hate shams
+- I love shams
